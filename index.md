@@ -2,4 +2,4 @@
 
 iekmlccmyluuc iekmlccmyluuc
 
-[ylmuimeüolemiük](https://iekmlccmyluuc.github.io/)
+[ylmuimeüolemiük](https://iekmlccmyluuc.github.io/about)
